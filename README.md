@@ -1,2 +1,2 @@
 # exercici-cues
-asd
+jesus
